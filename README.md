@@ -184,4 +184,4 @@ Set prefix
 
 ## ```Recode By ✏️```
 
-[![MantapJPG](https://ibb.co/8zbv18z?size=20)](https://instagram.com/asinyasinzz)
+[![MantapJPG](https://i.ibb.co/XyD0cJy/IMG-20230101-182114.jpg?size=20)](https://instagram.com/asinyasinzz)
