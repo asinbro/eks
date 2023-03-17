@@ -8,7 +8,7 @@ DEVELOPER TINGKAT RENDAH JANGAN DI BULLY, AKU MASIH PEMULA, SALAM KENAL!
 
 <p align="center">
 
-    <img src="https://i.ibb.co/ggz855X/IMG-20230208-223135.jpg" width="100%" style="margin-left: auto;margin-right: auto;display: block;">
+    <img src="https://telegra.ph/file/2cdd38f1c244dade857c8.jpg" width="90%" style="margin-left: auto;margin-right: auto;display: block;">
 
 </p>
 
